@@ -5,7 +5,7 @@ Phone: +8801843774927
 Email: surdmor@gmail.com   
 LinkedIn: linkedin.com/in/syed-ishmam-shahir-09195a150/) 
 
-PROFILE 
+PROFILE :
 
 I am a Software Engineering graduate from the American International University of 
 Bangladesh (AIUB) with expertise in IT, project management, and quality assurance. With 
@@ -18,7 +18,7 @@ Development, Hardware & Networking, Software Project Management, Software Qualit
 Testing - Soft Skills: Strong English communication (IELTS 7), team collaboration, leadership, 
 adaptability, customer care, and public speaking 
 
-WORK EXPERIENCE 
+WORK EXPERIENCE :
 
 1. IT Manager 
 Jasa Technologies, Dhaka, Bangladesh 
