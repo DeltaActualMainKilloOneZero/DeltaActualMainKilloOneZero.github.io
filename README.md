@@ -40,29 +40,13 @@ English.
 4. Support Coordinator   
 Field Nation LLC, USA   
 Sep 2018 – Feb 2019   - Provided phone and online support to users in managing freelance IT tasks. - Assisted users with troubleshooting and customer service in a high-paced 
-environment. 
-EDUCATION - Bachelor of Science (BSc) in Software Engineering  
+environment.
+
+EDUCATION : Bachelor of Science (BSc) in Software Engineering  
 American International University-Bangladesh (AIUB), Dhaka, Passing Year: 2021   
-CGPA: 3.09 / 4.00   - Higher Secondary Certificate (HSC) in Science   
-Chittagong College, Chittagong, Passing Year: 2012   
-CGPA: 4.74 / 5.00   - Secondary School Certificate (SSC) in Science   
-Nasirabad Govt High School, Chittagong, Passing Year: 2010   
-CGPA: 5.00 / 5.00   
-LANGUAGES - English: Fluent 
-EXTRA-CURRICULAR ACTIVITIES - Bengali: Fluent- Former BNCC Cadet Sergeant - Football Player, ISSB finalist (Army selection board) - Lyricist, rapper, artist, writer, and philosopher --- 
-Current Salary: 30,000 BDT/Month 
-Expected Salary: 40,000 BDT/Month 
-Preferred Location: Dhaka or Chattogram (Inside metropolitan City) 
 
-REFERENCE 
-
-Md. Manzurul Hasan 
-Assistant Professor, Department of 
-Computer Science   
-American International University
-Bangladesh   
-
-Jannatul Faim 
-CEO, Jasa Technologies 
-Dhaka, Bangladesh 
-Contact: 017749724
+Logo Design Previous work & Samples: https://drive.google.com/drive/folders/1wdUMopsU3-P6d3uw2dhLvGDNJPPARvs0?usp=drive_link
+Illustration Previous work & Samples: https://www.facebook.com/media/set/?set=a.3347036538641400&type=3
+Game Project: https://drive.google.com/drive/folders/1kmHsbauN6ExKNoS-Hu5qV1Nn7wPp7mum?usp=drive_link
+Extra Curricular: https://www.reverbnation.com/raprevolutionsurenomilitary
+                  https://www.youtube.com/watch?v=JJzf-QxX8Vs
