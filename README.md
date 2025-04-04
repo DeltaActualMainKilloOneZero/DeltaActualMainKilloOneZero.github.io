@@ -48,6 +48,7 @@ American International University-Bangladesh (AIUB), Dhaka, Passing Year: 2021
 Logo Design Previous work & Samples: https://drive.google.com/drive/folders/1wdUMopsU3-P6d3uw2dhLvGDNJPPARvs0?usp=drive_link
 
 Illustration Previous work & Samples: https://www.facebook.com/media/set/?set=a.3347036538641400&type=3
+                                      https://www.canva.com/projects
 
 Game Project: https://drive.google.com/drive/folders/1kmHsbauN6ExKNoS-Hu5qV1Nn7wPp7mum?usp=drive_link
 
