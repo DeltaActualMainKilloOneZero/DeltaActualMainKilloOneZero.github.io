@@ -49,7 +49,8 @@ My Demo Site: https://mernassignmenthtml.netlify.app/
 
 Logo Design Previous work & Samples: https://drive.google.com/drive/folders/1wdUMopsU3-P6d3uw2dhLvGDNJPPARvs0?usp=drive_link
 
-Illustration Previous work & Samples: https://www.facebook.com/media/set/?set=a.3347036538641400&type=3
+Illustration Previous work & Samples: https://www.facebook.com/photo/fbid=122124636002825557&set=pb.61574766731427.-2207520000
+                                      https://www.facebook.com/media/set/?set=a.3347036538641400&type=3
                                       https://www.facebook.com/profile.php?id=61574766731427
 
 Game Project: https://drive.google.com/drive/folders/1kmHsbauN6ExKNoS-Hu5qV1Nn7wPp7mum?usp=drive_link
